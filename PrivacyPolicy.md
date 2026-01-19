@@ -1,4 +1,4 @@
-Privacy Policy
+Gleanmo APP Privacy Policy
 
 Release Date: January 18, 2026  
 Update Date: January 18, 2026  
